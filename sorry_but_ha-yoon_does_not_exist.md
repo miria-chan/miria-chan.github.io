@@ -39,4 +39,4 @@ Dans un premier temps, nous allons citer les points qui étaient malencontreusem
 ### La vérité ?
 ![2023-05-05_Discord-51_1319x775.png](/opkzepo_z-iozjfg/2023-05-05_Discord-51_1319x775.png)
 *<a href="/opkzepo_z-iozjfg/a106a61423496fb0e6ae6d303ff3d1de.jpg" title="Voir l'exemple des yeux" rel="noopener" target="_blank">Voir l'exemple des yeux</a> via la photo du screen. <br>
-**ps: l'exemple est également réel au niveau de la couleur de peau ainsi que des cheveux (qui sont légèrement moins noiratre)
+**ps: l'exemple est également réel au niveau de la couleur de peau ainsi que des cheveux. (qui sont légèrement moins noiratre)
